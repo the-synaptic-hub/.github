@@ -1,1 +1,1 @@
-# велцоме то тхе йунгле
+# Welcome to Synaptic Hub
